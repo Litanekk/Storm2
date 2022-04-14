@@ -1,6 +1,4 @@
-# StormRP                                                                                             
-  
-      https://cdn.discordapp.com/attachments/945765300941520977/964197775149523034/standard_7.gif                                                     
+# FLintrp                                                                                                                                              
 
 
 Witaj w strafie podan
