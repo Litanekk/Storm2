@@ -1,14 +1,15 @@
-# StormRP                                                                                             ![hAPPYRP](https://user-images.githubusercontent.com/98953257/152540066-80ce03d1-a04b-4f3d-aa70-d68ef179905e.gif)
+# StormRP                                                                                             
+                                                             
 
 
-
-Witaj na stronie serwera stormRP 
-
-![logo (2)](https://user-images.githubusercontent.com/98953257/152529721-61f41961-505f-4786-adf1-00fcbe9b1782.png)
+Witaj w strafie podan
 
 
-O serwerze: Serwer jest serwerem RolePlay . 
-
-Faq: Czym jest RolePlay? - RolePlay to nic innego jak odgrywanie swojej postaci . Można powiedziec że jest to jagby teatr. Liczy się głównie kreatywność
-Co muszę mieć aby posiadać : Musisz posiadać sprawny mikrofon, mutacje głosu, oraz podstawową wiedze na temat role playu
+https://forms.gle/D5fSZraxA6tojmqRA - Podanie LSCM
+https://forms.gle/hUyWsAJcPVzfhq7WA - Podanie Firma
+https://forms.gle/QQRukyZHMrkup7XD7 - Trial Support
+https://forms.gle/SrA2nvxpkUr6eDh88 -Podanie wl checker
+https://forms.gle/1ukeAzNv7s1N1UZ27 - Podanie EMS
+https://forms.gle/UPLz4D9ueu9A1fXQ8 - Podanie LSPD
+https://forms.gle/Ca37pppWfT3kqG4g7 - Podanie organizacje
 
